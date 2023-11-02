@@ -1,4 +1,4 @@
-# NILOY
+# X-RAY BRAND
 
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?color=50F739&background=000000&height=80&lines=Hello+World+I+am+NILOY+EVAN+;This+Tool+RANDOM+UID+FILE+CLONING+Tool+System;Thanks+You+Visit+My+Github)](https://git.io/typing-svg)
